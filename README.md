@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Lufito123
+- 👀 I’m interested in: Games, Animes, Books
+- 🌱 I’m currently learning: Programing and Japanese
+- 💞️ I’m looking to collaborate on:
+- 📫 How to reach me: Twitter/X @JoJotiful
+- 😄 Pronouns: He/him
+- ⚡ Fun fact: Nothing!
